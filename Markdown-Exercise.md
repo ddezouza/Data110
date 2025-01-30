@@ -16,7 +16,8 @@ I wanted to improve my data analysis and visualization credentials, so I'm curre
   - Favourite Book: *The Count of Monte Cristo*, by Alexandre Dumas
 - Writing
 - Drawing and painting
-  - 
+  - Here I am at my high school art show:
+    
 - Watching movies
 
 
